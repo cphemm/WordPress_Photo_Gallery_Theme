@@ -1,0 +1,1 @@
+# WordPress_Photo_Gallery_Theme
